@@ -21,7 +21,7 @@ Welcome to my GitHub profile! I'm a passionate developer who loves working on in
 ## 📫 How to reach me
 
 - **Email:** [san77m@outlook.com](mailto:san77m@outlook.com)
-- **Twitter:** [twitter.com/sanjaay__](https://twitter.com/sanjaay__)
+- **X:** [x.com/sanjaay__](https://x.com/sanjaay__)
 
 ## 💬 Let's connect!
 
