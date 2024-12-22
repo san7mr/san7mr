@@ -1,4 +1,4 @@
-# Hi there, I'm San7mr! 👋
+# Hi there, I'm Sanjay! 👋
 
 Welcome to my GitHub profile! I'm a passionate developer who loves working on innovative projects and learning new technologies.
 
